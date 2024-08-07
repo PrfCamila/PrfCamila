@@ -2,5 +2,5 @@
 Sou a Prof Camila de Robótica
 🤖
 
-![](gifs.com/gif/paulo-rob-K1xwRl)
-![](https://tenor.com/pt-BR/view/picapau-puchapenas-robo-gif-10495694)
+![](https://cdn.pixabay.com/animation/2023/04/12/11/31/11-31-50-66_512.gif)
+
